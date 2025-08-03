@@ -1,0 +1,2 @@
+i was watching a Video and it was a lifeguard pushing in other lifeguards to a lake if they got certain questions wrong (it was laugh mode) and i thought wow, great idea for the QRS risk systems. Lakes and water parks. These fun times can become exteremly dangerous and sometimes tragic (imagine a lifeguard that watches the entire lake without any hiccups or bathroom break preventing death or injury)
+
